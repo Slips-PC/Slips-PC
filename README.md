@@ -1,3 +1,1 @@
-### !---  AD INFERNUM CUM NEGOTIUM    ---!
-### !---AD INFERNUM CUM ADMINISTRATIO ---!
-### !---AD INFERNUM CUM CAPITALISMUS  ---!
+I don't use this besides participating in the invidious repos really.
